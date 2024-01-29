@@ -11,4 +11,4 @@
 ## [Why Shenzhen Shunchuang and Shunde Angel Co-investment Resemble the Northern Myanmar Pig Butchering Scam](https://github.com/baiesl/InnovationPredicament/blob/main/shunde-pig-butchering-investment-model.EN.md)
 
 # Media Contact
-## sdcsmedia@proton.me
+## mediacontact2024@proton.me
